@@ -1,3 +1,3 @@
 hello, everyone
 ---
-we have demo tmrw at sharp  11
+we have demo on friday 
